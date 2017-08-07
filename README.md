@@ -4,7 +4,7 @@ Na verdade, você tem que saber isso antes de você compra suas peças de comput
 
 Dentro desta peça, você vai começar a aprender como é fácil montar Blog da Giemenez o computador de forma fácil e receber o prazer de problemas polvilhada rightaway. Se você está tentando montar o computador sem recorrer a qualquer suporte técnico, você tem que se certificar de que você está antecipando essas dinâmicas em primeiro lugar.
 
-[![Site Oficial do Pc Flash ](https://pcflashoficial.com/featured.png)](http://www.blogdagimenez.com.br/xtra-pc/)
+[![Site Oficial do Pc Flash ](https://pcflashoficial.com/featured.png)]
 
 É muito simples para construir um computador. **É um ton mais simples do que você imagina para a construção de um computador!** Computador pode parecer complicado, mas não é. A construção de um computador quando utilizar este e-book é tão simples passo-a-passo, como Pc Flash você peça que, juntos, 1 peça de uma só vez.
 
